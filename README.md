@@ -1,0 +1,1 @@
+# Transformada-rapida-de-Fourier-vibracion-mecanica.-
